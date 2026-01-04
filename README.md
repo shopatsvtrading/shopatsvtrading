@@ -1,4 +1,6 @@
-## Hi there 👋
+## Hi there 👋Our product collection includes artistic wall paintings made from iron and wood, designer wall watches, and unique decor pieces crafted to suit both modern and classic interiors. Each product reflects quality materials, fine finishing, and timeless design.
+
+At S V Trading, we believe that walls speak style. Our mission is to provide customers with decor products that not only decorate spaces but also express personality and taste. Through our e-commerce platform, we ensure easy browsing, secure ordering, and reliable delivery across India.
 
 <!--
 **shopatsvtrading/shopatsvtrading** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
